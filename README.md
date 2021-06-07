@@ -11,5 +11,5 @@ TP and simulation programs.
 ![2 Robis](https://i.ytimg.com/vi/vMnBkibywsk/hqdefault.jpg?sqp=-oaymwEcCNACELwBSFXyq4qpAw4IARUAAIhCGAFwAcABBg==&rs=AOn4CLBxePGc2S1ZbHF5TxfibcrG6eh9Yg)
 
 
-https://www.youtube.com/watch?v=vMnBkibywsk&t=13s
+https://www.youtube.com/watch?v=vMnBkibywsk&t
 
